@@ -7,8 +7,10 @@
 - 🔭 **I’m currently working at:** UX Designer at Commudle.
 - 🌱 **I’m currently working on:** Creating a design system for Commudle.
 - 👯 **I’m looking to collaborate on:** Products which are looking for a face-lift, or to enahnce your userbase by enhancing User Experience, or to create a brand.
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
+- 📖 **You can read my stories at: ** https://apoorva-ag.medium.com/
+- 🖌️ **Or checkout my illustrations at:** https://www.instagram.com/pixelkanya/
+- 📫 **How to reach me:** Twitter: https://twitter.com/apoorva_ag_
+-                          LinkeddIn: https://www.linkedin.com/in/apoorva-agarwal-39431416b/
+                           
 -->
 
