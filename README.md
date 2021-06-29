@@ -10,7 +10,7 @@
 - 📖 **You can read my stories at: ** https://apoorva-ag.medium.com/
 - 🖌️ **Or checkout my illustrations at:** https://www.instagram.com/pixelkanya/
 - 📫 **How to reach me:** Twitter: https://twitter.com/apoorva_ag_
--                          LinkeddIn: https://www.linkedin.com/in/apoorva-agarwal-39431416b/
+                          LinkedIn: https://www.linkedin.com/in/apoorva-agarwal-39431416b/
                            
 -->
 
